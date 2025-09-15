@@ -1,0 +1,1 @@
+https://content.codecademy.com/courses/freelance-1/capstone-2/colmar-academy-spec.png?_gl=1*ntlten*_gcl_au*MTkzNzY5MTQ0Ni4xNzU0MDQxMTYwLjE4MTY0NDYxNTUuMTc1NjM4NjM2NS4xNzU2Mzg2MzY2*_ga*ODY5NDcyNTc1Mi4xNzU0MDQxMTYx*_ga_3LRZM6TM9L*czE3NTc2ODE3NDEkbzEzJGcxJHQxNzU3NjgyNDY2JGozMyRsMCRoMA..
